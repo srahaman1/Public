@@ -62,21 +62,6 @@ The checking in process is simple. It's just like when you go to some grocery st
 ## Restaurants:
 - Pierre Loti Hill & Coffee House
 
-# City:
-## Locations of Interest:
-### Mosques
-- 
-### Markets
-- 
-### Historical Sites
-- 
-### General Sites:
-- 
-### Activities
-- 
-## Restaurants:
-
-
 Hagia Sophia / Aya Sophia - easiest to get in during namaz time. There's a visitor line and a namaz line that opens when the adhan is called. You must dress appropriately to enter regardless of which line you're in. You must be wearing long sleeves, and covering your hair if you're a woman. They sell scarves atm but bring your own to avoid an easily avoidable expense. 
 
 Super helpful:
